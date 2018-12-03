@@ -1,2 +1,0 @@
-# Biswo
-Swami Vivekananda
